@@ -1,2 +1,2 @@
 # domaining.github.com
-Domain Names
+Curated list of premium domain names available for immediate purchase
